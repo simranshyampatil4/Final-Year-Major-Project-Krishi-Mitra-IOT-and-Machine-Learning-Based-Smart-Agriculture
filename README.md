@@ -1,0 +1,1 @@
+# Final-Year-Major-Project-Krishi-Mitra-IOT-and-Machine-Learning-Based-Smart-Agriculture
